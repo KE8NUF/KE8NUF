@@ -7,9 +7,9 @@ Twitter: DamienM2005
 
 Steam: GunFighterMan101
 
-Discord: GunFighterMan101#6105
+Discord: GunFighterMan101#8797
 
-My Main Discord Server: https://discord.gg/j5Juksy
+My Main Discord Server: https://discord.gg/tRYafvgDgr
 
 (Other Social Medias I Use Less are Located on my Website)
 https://gunfighterman101.wixsite.com/gunfighterman101

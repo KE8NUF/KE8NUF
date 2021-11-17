@@ -1,5 +1,5 @@
-Hello all! My username is GunFighterMan101 on most if not all of my social medias, an alias would be GunFighterMan. I usually go by my real name online which is Damien.
-I like to play around with code a lot, usually breaking stuff. I run a YouTube channel and play games a lot. My current most played game is Team Fortress 2.
+Hello all! My name is Damien.
+I like to play around with code a lot, usually breaking stuff. I run a YouTube channel and play games a lot. My current most played game is Team Fortress 2. I am also studying for HVAC/R (Heating, Ventilation, and Air Conditioning/Refrideration). I am also a Technician HAM, my callsign is KE8NUF.
 
 Where you can reach me:
 
@@ -11,11 +11,9 @@ Discord: GunFighterMan101#8797
 
 My Main Discord Server: https://discord.gg/tRYafvgDgr
 
-(Other Social Medias I Use Less are Located on my Website)
-https://gunfighterman101.wixsite.com/gunfighterman101
 
-Hope you can find me on the interwebz :P
-Have a good day! (or night if you are a night owl like me)
+Hope you can find me breaking stuff or possibly hacking (ethically of course)
+Have a good day! (or night)
 
 <!---
 GunFighterMan101/GunFighterMan101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

@@ -1,14 +1,13 @@
-Howdy fellas!
+wow i hate this place
 
-## A Little About Me
-* I like old music and culture (mainly 50s)
-* I love playing Team Fortress 2
-* Neco Arc and Big Boss is pretty cool
+## Some Stuff About Me
+* Ham Radio hobbyist
+* I like STALKER and Silent Hill
+* I love the smell of petrichor
 
 ## My Social Links
-[YouTube](https://www.youtube.com/@KE8NUF)
 [Steam](https://steamcommunity.com/id/ke8nuf)
-[Discord](https://discord.gg/rd4U2sa3kU)
+[Discord](https://discord.gg/bBMzmbfeDW)
 
 <!---
 GunFighterMan101/GunFighterMan101 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
